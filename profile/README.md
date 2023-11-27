@@ -15,7 +15,7 @@
 ## 교육 기간
 - 23.10 - 23.11
 - 교육 내용은 `노션`에 기록하였습니다. <br>
-  🔗 https://sieun96.notion.site/6ad100e31da04848b8bc4d6ca27e5d58?pvs=4
+  🔗 https://sieunnnn.oopy.io/6ad100e3-1da0-4848-b8bc-4d6ca27e5d58
 
 <br>
 
